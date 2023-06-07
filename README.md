@@ -1,0 +1,1 @@
+# VKR_Kuprihin_19PO_2023
